@@ -4,5 +4,5 @@ $${\color{red}my\ representive\ animals\ are \ ferrets \ and \ ravens, \ }$$
 
 $${\color{red}sign\ ata\ please,, \ }$$
 
-[*madoka*](*[link](https://github.com/magicalgirll)*)
+[*madoka*](*[[https://github.com/magicalgirll]*)
 
