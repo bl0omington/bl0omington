@@ -1,4 +1,4 @@
-$${\color{red}RICHMAN\ BY\ 30H!3\}$$
+$${\color{red}whatever\ you\ do\at \the \crossroads,\keep \going \forward.\}$$
 
 $${\color{red}my\ representive\ animals\ are \ ferrets \ and \ ravens, \ }$$
 
