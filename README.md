@@ -5,4 +5,4 @@ $${\color{red}or\ something\ like\ that. \ }$$
 $${\color{red}(i\ was\ never \ really \ good \ at\ endings\)}$$
 
 $${\color{red}sign\ ata\ please,, \ }$$
-[**](*https://ravensev.straw.page/*)
+[**](https://ravensev.straw.page/)
